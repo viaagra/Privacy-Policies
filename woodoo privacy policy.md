@@ -58,6 +58,12 @@ These Services do not address anyone under the age of 13. We do not knowingly co
 
 We may update our Privacy Policy from time to time. Thus, you are advised to review this page periodically for any changes. We will notify you of any changes by posting the new Privacy Policy on this page. These changes are effective immediately after they are posted on this page.
 
+**Terms and Conditions**
+We reserve all rights regarding updating this or any policy of the app. We reserve the right to do so without intimating the users first. By installing and using the app, it shall be automatically assumed that you agree to all the stated terms mentioned in this policy.
+
+**Cancellation/Refund Policy**
+Any purchase made on the app will be one-time only. No refunds will be granted under any condition whatsoever.
+
 **Contact Us**
 
 If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at viaagraviaagra@gmail.com.
